@@ -8,7 +8,7 @@
 
 📫 Need to get in contact? Email me - caitlinlbuckle@gmail.com (don't forget the L in the middle 😉) 
 
-🦈 Follow along as a kick-start my career and continue to develop my analytic skills! 
+🦈 Follow along as a kick-start my career and continue to develop my analytical skills! 
 
 
 <!--
