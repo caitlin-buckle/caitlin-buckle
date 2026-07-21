@@ -2,7 +2,7 @@
 
 🪼 I am a Masters student at James Cook University, majoring in marine conservation and management. 
 
-🪸 I am keenly interested in science communication and it's role in conservation management, particularly how we can make research/science digestible for the public! 
+🪸 I am keenly interested in science communication and its role in conservation management, particularly how we can make research/science digestible for the public! 
 
 🤿 I'm an avid diver, and currently work as a dive instructor on the Great Barrier Reef! 
 
